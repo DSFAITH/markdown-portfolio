@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+    ![image] (file:///C:/Users/Dani/Pictures/Snapchat/Snapchat-5519228406185781627-1.jpg)
