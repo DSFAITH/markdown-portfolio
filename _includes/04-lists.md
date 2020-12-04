@@ -1,1 +1,1 @@
-Replace this with a list of your favorite things.
+*Outdoor Activities *Experiencing other cultures *Reading Thriller/Mystery novels
